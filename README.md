@@ -1,0 +1,5 @@
+- 👋 Hi, I’m ianamss
+- 👀 I’m interested in game     
+- 🌱 I’m currently learning coding
+- 💞️ I’m looking to collaborate on learning
+- 📫 How to reach me is via discord
